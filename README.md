@@ -42,6 +42,7 @@
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/f367aa03-dcfc-4b10-b85a-15b0cc582f2c" />
 
 ###### ・原神やスターレイルにはまっています。
+###### ・現在は魔法少女ノ魔女裁判にドはまりしています。
 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/e9da3b1e-a681-4168-b974-4296bb78b14a" />　<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/d2ea4f16-512e-41b6-8b7b-bbcc06ef1fe2" />
 
 
